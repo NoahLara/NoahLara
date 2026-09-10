@@ -60,4 +60,4 @@ I'm currently open to new roles — remote or relocation.
 
 ---
 
-## 📄 God Bless U <3
+God Bless U <3
